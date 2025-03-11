@@ -27,6 +27,6 @@
 - Перевод и переводоведение, Новосибирский государственный технический университет (2023)
 
 ## Контакты и социальные сети:
-Telegram: @ameqordo
-Vk: https://vk.com/ameqordo
-WhatsApp: +79963787701
+- Telegram: @ameqordo
+- Vk: https://vk.com/ameqordo
+- WhatsApp: +79963787701
