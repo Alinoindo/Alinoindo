@@ -30,3 +30,4 @@
 - Telegram: @ameqordo
 - Vk: https://vk.com/ameqordo
 - WhatsApp: +79963787701
+- Email: alinasmeenova@yandex.ru
